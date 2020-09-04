@@ -1,0 +1,1 @@
+Engenharia de software vai me agregar muito conhecimento na informação de documentos. Com ambiente de desenvolvimento aprenderei a organizar meus projetos. Analise exploratória me auxiliará com a parte de analise de negocios.  
